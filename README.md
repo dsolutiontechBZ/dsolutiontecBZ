@@ -7,7 +7,7 @@
 * 💞️ I’m looking to collaborate on anything technology-related
 * 😄 Pronouns: He/Him
 ### 📫 How to reach me
-**Whatsapp: (+501) 615-1855**
+**Whatsapp: (+501) 615-1855)**
 
 **Email: dsolutiontech@outlook.com**
 
